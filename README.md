@@ -1,4 +1,4 @@
-## Hi, I'm Redyia
+## Hi, I'm Dylin
 
 🖤Bisexual<br/>
 🏳️‍⚧️Trans Girl<br/>
